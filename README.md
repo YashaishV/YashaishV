@@ -6,6 +6,9 @@
 💬 Ask me about my patent (lemme flex, will attach soon <br/>
 ⚡ Fun fact: I'm pretty passionate about a lot yet inconsistent at most <br/>
 
+161125 
+fuck it gonna complete cy- forensics today easy deal
+
 
 
 <!--
