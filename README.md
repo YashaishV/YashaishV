@@ -7,11 +7,11 @@
 ⚡ Fun fact: I'm pretty and passionate about a lot yet inconsistent at most <br/>
 
 161125 
-fuck it gonna complete cy- forensics today easy deal
-i did kid ✅
-201125 
-fucking gonna complete splunk part 101 01.30ish
-did arount 3 am
+fuck it gonna complete cy- forensics today easy deal <br/>
+i did kid ✅ <br/>
+201125 <br/>
+fucking gonna complete splunk part 101 01.30ish <br/>
+did arount 3 am <br/>
 
 
 
