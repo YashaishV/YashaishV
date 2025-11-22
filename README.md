@@ -4,7 +4,7 @@
 🔭 I’m currently working on myself hehe ;)<br/>
 🌱 I’m currently learning about the siem tools and rn at the hihger level of the preventive and defensive security that all covers in purple program [https://learn.purplesynapz.com/profile] <br/>
 💬 Ask me about my patent (lemme flex, will attach soon <br/>
-⚡ Fun fact: I'm pretty passionate about a lot yet inconsistent at most <br/>
+⚡ Fun fact: I'm pretty and passionate about a lot yet inconsistent at most <br/>
 
 161125 
 fuck it gonna complete cy- forensics today easy deal
