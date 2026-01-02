@@ -6,7 +6,8 @@
 well couldn't complete ;( <br/>
 💬 Ask me about my patent (lemme flex, will attach soon <br/>
 ⚡ Fun fact: I'm pretty and passionate about a lot yet inconsistent at most <br/>
-🌸 Perpetually plugged into [burgeoning](https://codeberg.org/Harisfromcyber/Cybersecurity)
+🌸 Perpetually plugged into [burgeoning](https://codeberg.org/Harisfromcyber/Cybersecurity) <br/>
+* Trust the process, hold the vision
 
 161125 
 fuck it gonna complete cy- forensics today easy deal <br/>
