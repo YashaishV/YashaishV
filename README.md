@@ -49,6 +49,8 @@
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/latex/latex-original.svg" height="40" alt="latex logo"  />
 </div>
 
+⚡Starting cyber security journey from tomorrow counting as day 1
+
 ###
 
 <picture>
